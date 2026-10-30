@@ -1,1 +1,1 @@
-# astrophysics
+# astrophysic
